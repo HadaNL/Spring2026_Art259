@@ -1,1 +1,1 @@
-# Fall2026_Art259
+# Spring2026_Art259
